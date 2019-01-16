@@ -8,3 +8,4 @@
 + 我個性害羞，希望可以和大家當好朋友
 
 ![Alt text](https://i.imgur.com/XcwMiXW.jpg)
+![image](8e9d5990526af60d645a75146d214222.JPG)
